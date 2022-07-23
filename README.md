@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @allahrakha3200
+- 👋 Hi, I’m ALLAH RAKHA
 - 👀 I’m interested in social media marketing 
 - 🌱 I’m currently learning Email marketing 
 - 💞️ I’m looking to collaborate on ...
